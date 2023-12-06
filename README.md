@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sarakapo
+- 👀 I’m interested in web3 and blockchain
+- 🌱 I’m currently learning more about crypto market
+- 💞️ I’m looking to collaborate with crypto projects and protocols
